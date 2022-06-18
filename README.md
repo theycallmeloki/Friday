@@ -1,3 +1,3 @@
-# Friday(s)
+# Friday
 
-F.R.I.D.A.Y.(S) stands for Fully Redundant Independent Displays At Your Service 
+F.R.I.D.A.Y stands for Fully Redundant Independent Displays Assistant Youth
