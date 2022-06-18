@@ -1,1 +1,1 @@
-# friday
+# Friday
